@@ -13,8 +13,8 @@ Chúng con lạy ơn Đức Chúa Thánh Thần thiêng liêng sáng láng vô c
 Lạy Chúa, Chúa là Đấng trọn tốt trọn lành vô cùng, Chúa đã dựng nên con, và cho Con Chúa ra đời chịu nạn chịu chết vì con, mà con đã cả lòng phản nghịch lỗi nghĩa cùng Chúa, thì con lo buồn đau đớn cùng chê ghét mọi tội con trên hết mọi sự, con dốc lòng chừa cải và nhờ ơn Chúa thì con sẽ tránh xa dịp tội, cùng làm việc đền tội cho xứng. Amen.
 
 ### Kinh Tin Kính
-Tôi tin kính Đức Chúa Trời, là Cha phép tắc vô cùng dựng nên trời đất.
-Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng tôi, bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Maria Đồng Trinh, chịu nạn đời quan Phongxiô Philatô, chịu đóng đanh trên cây Thánh Giá, chết và táng xác, xuống ngục tổ tông, ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết.
+Tôi tin kính Đức Chúa Trời, là Cha phép tắc vô cùng dựng nên trời đất. <br/>
+Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng tôi, bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Maria Đồng Trinh, chịu nạn đời quan Phongxiô Philatô, chịu đóng đanh trên cây Thánh Giá, chết và táng xác, xuống ngục tổ tông, ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết.<br/>
 Tôi tin kính Đức Chúa Thánh Thần. Tôi tin có Hội Thánh hằng có ở khắp thế này, các thánh thông công. Tôi tin phép tha tội. Tôi tin xác loài người ngày sau sống lại. Tôi tin hằng sống vậy. Amen.
 
 ### Kinh Lạy Cha
@@ -40,17 +40,19 @@ Lạy Đấng Chí Thánh, là Thiên Chúa Toàn Năng Hằng Hữu, xin thươ
 Ôi! Máu và Nước tuôn ra từ Trái Tim Chúa Giêsu, là nguồn mạch Lòng Chúa Thương Xót, chúng con trông cậy nơi Ngài. *(x3)*  
 
 ### Kinh Lạy Nữ Vương
-Lạy Nữ Vương Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ, chúng con, con cháu E-và ở chốn khách đầy, kêu đến cùng Bà; Chúng con ở nơi khóc lóc than thở kêu khấn Bà thương. Hỡi ôi! Bà là Chúa bầu chúng con, xin ghé mắt thương xem chúng con. Đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu, Con lòng Bà gồm phúc lạ.
+Lạy Nữ Vương Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ, chúng con, con cháu E-và ở chốn khách đầy, kêu đến cùng Bà; Chúng con ở nơi khóc lóc than thở kêu khấn Bà thương. Hỡi ôi! Bà là Chúa bầu chúng con, xin ghé mắt thương xem chúng con. Đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu, Con lòng Bà gồm phúc lạ. <br/>
 Ôi khoan thay! nhân thay! dịu thay! Thánh Maria trọn đời đồng trinh. Amen.
 
 ### Kinh Hãy Nhớ
-Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ xưa nay chưa từng nghe có người nào chạy đến cùng Đức Mẹ xin bầu chữa cứu giúp, mà Đức Mẹ từ bỏ chẳng nhận lời. Nhân vì sự ấy, con lấy lòng trông cậy than van chạy đến sấp mình xuống dưới chân Đức Mẹ, là Nữ Đồng Trinh trên hết các kẻ đồng trinh, xin Đức Mẹ đoái đến con, là kẻ tội lỗi. Lạy Mẹ là Mẹ Chúa Cứu Thế, xin chớ bỏ lời con kêu xin, một dủ lòng thương mà nhận lời con cùng. Amen.
+Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ xưa nay chưa từng nghe có người nào chạy đến cùng Đức Mẹ xin bầu chữa cứu giúp, mà Đức Mẹ từ bỏ chẳng nhận lời. <br/>
+Nhân vì sự ấy, con lấy lòng trông cậy than van chạy đến sấp mình xuống dưới chân Đức Mẹ, là Nữ Đồng Trinh trên hết các kẻ đồng trinh, xin Đức Mẹ đoái đến con, là kẻ tội lỗi. <br/>
+Lạy Mẹ là Mẹ Chúa Cứu Thế, xin chớ bỏ lời con kêu xin, một dủ lòng thương mà nhận lời con cùng. Amen.
 
 ### Kinh Lạy Nữ Vương Gia Đình
 Lạy Nữ Vương gia đình, Mẹ ở đây với chúng con, vui buồn sướng khổ, Mẹ con cùng nhau chia sẻ. Xa Mẹ chúng con biết cậy trong ai? Đời chúng con gian nan khổ sở lắm, gia đình chúng con long đong tối ngày, nhưng có Mẹ ở bên chúng con, chúng con thấy quên hết ưu phiền, vui sống qua kiếp lưu đày, mong ngày sau sung sướng cùng Mẹ muôn đời trên thiên đàng. Amen.
 
 ### Kinh Ông Thánh Giuse bầu cử
-Lạy ơn Ông Thánh Giuse, chúng con chạy đến cùng Người trong cơn gian nan chúng con mắc phải. Chúng con đã kêu van cùng Rất Thánh Đức Bà, là Đấng đã làm bạn cùng Người, phù hộ gìn giữ chúng con. Thì chúng con cũng lấy lòng trông cậy cho vững vàng mà xin Ông Thánh Giuse bầu cử cho chúng con như vậy. Chúng con xin vì nhân đức kính mến, mà Người làm bạn cùng Rất Thánh Đồng Trinh là Mẹ Chúa Trời, và là Đấng chẳng hề mắc tội Tổ Tông truyền; cùng vì lòng thương Người đã ẵm lấy Đức Chúa Giêsu, thì chúng con xin Ông Thánh Giuse ghé mặt lại mà thương đến Hội Thánh là phần sản nghiệp Đức Chúa Giêsu đã lấy Máu Thánh mình mà chuộc. Lại xin Người dùng sức mạnh thiêng liêng, và quyền phép Người mà giúp đỡ những sự chúng con còn thiếu thốn.
+Lạy ơn Ông Thánh Giuse, chúng con chạy đến cùng Người trong cơn gian nan chúng con mắc phải. Chúng con đã kêu van cùng Rất Thánh Đức Bà, là Đấng đã làm bạn cùng Người, phù hộ gìn giữ chúng con. Thì chúng con cũng lấy lòng trông cậy cho vững vàng mà xin Ông Thánh Giuse bầu cử cho chúng con như vậy. Chúng con xin vì nhân đức kính mến, mà Người làm bạn cùng Rất Thánh Đồng Trinh là Mẹ Chúa Trời, và là Đấng chẳng hề mắc tội Tổ Tông truyền; cùng vì lòng thương Người đã ẵm lấy Đức Chúa Giêsu, thì chúng con xin Ông Thánh Giuse ghé mặt lại mà thương đến Hội Thánh là phần sản nghiệp Đức Chúa Giêsu đã lấy Máu Thánh mình mà chuộc. Lại xin Người dùng sức mạnh thiêng liêng, và quyền phép Người mà giúp đỡ những sự chúng con còn thiếu thốn. <br/>
 Lạy Đấng đã coi sóc Đức Chúa Giêsu cùng Đức Bà cho cẩn thận, thì chúng con xin Người bênh vực con cái Đức Chúa Giêsu đã chọn. Lạy Cha rất thương yêu, chúng con xin Người cất mọi sự dối trá cùng mọi tội lỗi, cho chúng con khỏi mắc phải những sự ấy. Lạy Đấng rất mạnh đang ở trên trời, xin gìn giữ chúng con. Xin Người dủ lòng thương mà che chở chúng con đang khi chiến trận cùng kẻ thù tối tăm là các ma quỉ. Như xưa Người đã gìn giữ Đức Chúa Giêsu cho khỏi cơn hiểm nghèo thế nào, thì rày chúng con cũng xin Người cứu chữa lấy Hội Thánh cho khỏi các mưu kế giặc thù, và các sự gian nan khốn khó như vậy. Cùng xin Người hằng bầu cử cho chúng con được bắt chước Người, và cậy trông vì quyền thế Người cho được giữ đạo cho trọn, cùng được chết lành, và được hưởng phúc vô cùng trên Thiên đàng. Amen.
 
 ### Kinh Bởi Lời
@@ -67,7 +69,7 @@ Lạy Chúa con, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ �
 Lạy Rất Thánh Trái Tim Đức Chúa Giêsu, con nhờ Trái Tim Cực Sạch Đức Bà Maria mà dâng cho Trái Tim Chúa mọi lời con cầu xin, mọi việc con làm, mọi sự khó con chịu trong ngày hôm nay, cho được đền vì tội lỗi con và cầu nguyện theo ý Chúa . Khi dâng mình tế lễ trên bàn thờ, con lại dâng các sự ấy cho Trái Tim Chúa, có ý cầu nguyện cách riêng theo ý Đức Giáo Hoàng.
 
 ### Kinh Phó Dâng 
-Lạy Chúa con, con xin phó dâng linh hồn và xác con ở tay Chúa con, Chúa đã phù hộ con ban (*ngày / đêm)*, thì xin Chúa cũng gìn giữ con ban (*đêm / ngày)*, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
+Lạy Chúa con, con xin phó dâng linh hồn và xác con ở tay Chúa con, Chúa đã phù hộ con ban *(ngày / đêm)*, thì xin Chúa cũng gìn giữ con ban *(đêm / ngày)*, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
 
 ### Kinh Sáng Soi
 Cúi xin Chúa sáng soi cho chúng con được biết việc phải làm, cùng khi làm xin Chúa giúp đỡ cho mỗi kinh mỗi việc chúng con, từ khởi sự cho đến hoàn thành đều nhờ bởi ơn Chúa. Amen.
@@ -91,24 +93,26 @@ Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê ch
 
 ## KINH TRONG THÁNH LỄ:
 
-Xin Chúa thương xót chúng con.
-Xin Chúa Kitô thương xót chúng con.
-Xin Chúa thương xót chúng con.
+Xin Chúa thương xót chúng con. <br/>
+Xin Chúa Kitô thương xót chúng con. <br/>
+Xin Chúa thương xót chúng con. <br/>
 
 Thánh! Thánh! Thánh!  <br/>
-Chúa là Thiên Chúa các đạo binh. Trời đất đầy vinh quang Chúa. Hoan hô Chúa trên các tầng trời. Chúc tụng Đấng ngự đến nhân danh Chúa. Hoan hô Chúa trên các tầng trời.
+Chúa là Thiên Chúa các đạo binh. Trời đất đầy vinh quang Chúa. <br/>
+Hoan hô Chúa trên các tầng trời. Chúc tụng Đấng ngự đến nhân danh Chúa. Hoan hô Chúa trên các tầng trời.
 
 ### Kinh Cáo Mình (mới)
-Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng.
+Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng. <br/>
 Vì vậy tôi xin Đức Bà Maria trọn đời đồng trinh, các thiên thần, các thánh và anh chị em, khẩn cầu cho tôi trước toà Thiên Chúa, Chúa chúng ta.
 
 ### Kinh Vinh Danh
-Vinh danh Thiên Chúa trên các tầng trời, và bình an dưới thế cho loài người thiện tâm. Chúng con ca ngợi Chúa, chúng con chúc tụng Chúa, chúng con thờ lạy Chúa, chúng con tôn vinh Chúa, chúng con cảm tạ Chúa vì vinh quang cao cả Chúa.
-Lạy Chúa là Thiên Chúa, là Vua trên trời, là Chúa Cha toàn năng. 
-Lạy Con Một Thiên Chúa, Chúa Giêsu Kitô, lạy Chúa là Thiên Chúa, là Chiên Thiên Chúa, là Con Đức Chúa Cha. 
-Chúa xóa tội trần gian, xin thương xót chúng con.
-Chúa xóa tội trần gian, xin nhậm lời chúng con cầu khẩn. 
-Chúa ngự bên hữu Đức Chúa Cha, xin thương xót chúng con. Vì, lạy Chúa Giêsu Kitô, chỉ có Chúa là Đấng Thánh, chỉ có Chúa là Chúa, chỉ có Chúa là Đấng Tối Cao, cùng Đức Chúa Thánh Thần trong vinh quang Đức Chúa Cha. Amen.
+Vinh danh Thiên Chúa trên các tầng trời, và bình an dưới thế cho loài người thiện tâm. Chúng con ca ngợi Chúa, chúng con chúc tụng Chúa, chúng con thờ lạy Chúa, chúng con tôn vinh Chúa, chúng con cảm tạ Chúa vì vinh quang cao cả Chúa. <br/>
+Lạy Chúa là Thiên Chúa, là Vua trên trời, là Chúa Cha toàn năng. <br/>
+Lạy Con Một Thiên Chúa, Chúa Giêsu Kitô, lạy Chúa là Thiên Chúa, là Chiên Thiên Chúa, là Con Đức Chúa Cha. <br/>
+Chúa xóa tội trần gian, xin thương xót chúng con. <br/>
+Chúa xóa tội trần gian, xin nhậm lời chúng con cầu khẩn. <br/>
+Chúa ngự bên hữu Đức Chúa Cha, xin thương xót chúng con. <br/>
+Vì, lạy Chúa Giêsu Kitô, chỉ có Chúa là Đấng Thánh, chỉ có Chúa là Chúa, chỉ có Chúa là Đấng Tối Cao, cùng Đức Chúa Thánh Thần trong vinh quang Đức Chúa Cha. Amen.
 
 
 ### Kinh Tin Kính Nicêa Constantinôpôli
@@ -240,82 +244,91 @@ R. And kindle in them the fire of your love. <br/>
 V. Send forth your Spirit and they shall be created. <br/>
 R. And you shall renew the face of the earth. <br/>
 Let us pray: <br/>
-O God, by the light of the Holy Spirit you have taught the hearts of your faithful. In the same Spirit, help us to know what is truly right and always to rejoice in your consolation. We ask this through Christ, Our Lord. Amen.
+O God, by the light of the Holy Spirit you have taught the hearts of your faithful. <br/>
+In the same Spirit, help us to know what is truly right and always to rejoice in your consolation. We ask this through Christ, Our Lord. Amen.
 
 ### Act of Contrition
 O my God, I am heartily sorry for having offended Thee, and I detest all my sins because of thy just punishments, but most of all because they offend Thee, my God, who art all good and deserving of all my love. I firmly resolve with the help of Thy grace to sin no more and to avoid the near occasion of sin. Amen.
 
 ### Apostles’ Creed
-I believe in God, the Father almighty, Creator of heaven and earth, and in Jesus Christ, his only Son, our Lord, who was conceived by the Holy Spirit, born of the Virgin Mary, suffered under Pontius Pilate, was crucified, died and was buried; he descended into hell; on the third day he rose again from the dead; he ascended into heaven, and is seated at the right hand of God the Father almighty; from there he will come to judge the living and the dead.
+I believe in God, the Father almighty, Creator of heaven and earth, and in Jesus Christ, his only Son, our Lord, who was conceived by the Holy Spirit, born of the Virgin Mary, suffered under Pontius Pilate, was crucified, died and was buried; he descended into hell; on the third day he rose again from the dead; he ascended into heaven, and is seated at the right hand of God the Father almighty; from there he will come to judge the living and the dead. <br/>
 I believe in the Holy Spirit, the holy catholic Church, the communion of saints, the forgiveness of sins, the resurrection of the body, and life everlasting. Amen.
 
 ### Our Father (The Lord’s Prayer)
-Our Father, who art in heaven, hallowed be Thy name; Thy kingdom come, Thy will be done on earth as it is in heaven.
+Our Father, who art in heaven, hallowed be Thy name; Thy kingdom come, Thy will be done on earth as it is in heaven. <br/>
 Give us this day our daily bread; and forgive us our trespasses as we forgive those who trespass against us; and lead us not into temptation, but deliver us from evil. Amen.
  
 ### Hail Mary
-Hail, Mary, full of grace, the Lord is with thee. Blessed art thou among women and blessed is the fruit of thywomb, Jesus. Holy Mary, Mother of God, pray for us sinners, now and at the hour of our death. Amen
+Hail, Mary, full of grace, the Lord is with thee. Blessed art thou among women and blessed is the fruit of thywomb, Jesus. <br/>
+Holy Mary, Mother of God, pray for us sinners, now and at the hour of our death. Amen
 
 ### Glory Be (The Doxology)
-Glory to the Father, and to the Son, and to the Holy Spirit. As it was in the beginning, is now, and will be forever. Amen.
+Glory to the Father, and to the Son, and to the Holy Spirit.  <br/>
+As it was in the beginning, is now, and will be forever. Amen.
 
 ### The Fatima Decade Prayer
 O my Jesus, forgive us our sins, save us from the fires of hell; lead all souls to Heaven, especially those who have most need of your mercy.
 
 ### Hail, Holy Queen (Salve Regina)
-Hail, Holy Queen, Mother of Mercy, our life, our sweetness and our hope.To thee do we cry, poor banished children of Eve
-To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us, and after this our exile show unto us the blessed fruit of thy womb, Jesus. O clement, O loving, O sweet Virgin Mary. Amen
+Hail, Holy Queen, Mother of Mercy, our life, our sweetness and our hope.To thee do we cry, poor banished children of Eve. <br/>
+To thee do we send up our sighs, mourning and weeping in this valley of tears. Turn then, most gracious advocate, thine eyes of mercy toward us, and after this our exile show unto us the blessed fruit of thy womb, Jesus.  <br/>
+O clement, O loving, O sweet Virgin Mary. Amen
 
 ### Memorare
-Remember, O most gracious Virgin Mary, that never was it known that anyone who fled to thy protection, implored thy help, or sought thy intercession, was left unaided. Inspired by this confidence I fly unto thee, O Virgin of virgins, myMother. To thee do I come, before thee I stand, sinful and sorrowful. O Mother of the Word Incarnate, despise not my petitions, but in thy mercy hear and answer me. Amen
+Remember, O most gracious Virgin Mary, that never was it known that anyone who fled to thy protection, implored thy help, or sought thy intercession, was left unaided. <br/>
+Inspired by this confidence I fly unto thee, O Virgin of virgins, myMother. <br/>
+To thee do I come, before thee I stand, sinful and sorrowful. <br/>
+O Mother of the Word Incarnate, despise not my petitions, but in thy mercy hear and answer me. Amen
 
 ### Prayer to St. Joseph
-To you, O blessed Joseph, 
-do we come in our tribulation,
-and having implored the help of your most holy Spouse,
-we confidently invoke your patronage also.
+To you, O blessed Joseph, <br/>
+do we come in our tribulation, <br/>
+and having implored the help of your most holy Spouse, <br/>
+we confidently invoke your patronage also. 
 
-Through that charity which bound you
-to the Immaculate Virgin Mother of God
-and through the paternal love
-with which you embraced the Child Jesus,
-we humbly beg you graciously to regard the inheritance
-which Jesus Christ has purchased by his Blood,
+Through that charity which bound you <br/>
+to the Immaculate Virgin Mother of God <br/>
+and through the paternal love <br/>
+with which you embraced the Child Jesus, <br/>
+we humbly beg you graciously to regard the inheritance <br/>
+which Jesus Christ has purchased by his Blood, <br/>
 and with your power and strength to aid us in our necessities.
 
-O most watchful guardian of the Holy Family,
-defend the chosen children of Jesus Christ;
-O most loving father, ward off from us
-every contagion of error and corrupting influence;
-O our most mighty protector, be kind to us
-and from heaven assist us in our struggle
-with the power of darkness.
-As once you rescued the Child Jesus from deadly peril,
-so now protect God's Holy Church
-from the snares of the enemy and from all adversity;
-shield, too, each one of us by your constant protection,
-so that, supported by your example and your aid,
-we may be able to live piously, to die in holiness,
-and to obtain eternal happiness in heaven.
+O most watchful guardian of the Holy Family, <br/>
+defend the chosen children of Jesus Christ; <br/>
+O most loving father, ward off from us <br/>
+every contagion of error and corrupting influence; <br/>
+O our most mighty protector, be kind to us <br/>
+and from heaven assist us in our struggle <br/>
+with the power of darkness. <br/>
+As once you rescued the Child Jesus from deadly peril, <br/>
+so now protect God's Holy Church <br/>
+from the snares of the enemy and from all adversity; <br/>
+shield, too, each one of us by your constant protection, <br/>
+so that, supported by your example and your aid, <br/>
+we may be able to live piously, to die in holiness, <br/>
+and to obtain eternal happiness in heaven. <br/>
 Amen.
 
 ### De Profundis (Psalm 130)
-Out of the depths I have cried unto Thee, O Lord; Lord, hear my voice.
-Let Thine ears be attentive to the voice of my supplication. If Thou, O Lord, shalt mark our iniquities: O Lord, who can abide it?
-For with Thee there is mercy: and by reason of Thy law I have waited on Thee, O Lord.
-My soul hath waited on His word: my soul hath hoped in the Lord. From the morning watch even unto night: let Israel hope in the Lord. For with the Lord there is mercy: and with Him is plenteous redemption.
-And He shall redeem Israel from all his iniquities.
+Out of the depths I have cried unto Thee, O Lord; Lord, hear my voice. <br/>
+Let Thine ears be attentive to the voice of my supplication. If Thou, O Lord, shalt mark our iniquities: O Lord, who can abide it? <br/>
+For with Thee there is mercy: and by reason of Thy law I have waited on Thee, O Lord. <br/>
+My soul hath waited on His word: my soul hath hoped in the Lord. From the morning watch even unto night: let Israel hope in the Lord. <br/> 
+For with the Lord there is mercy: and with Him is plenteous redemption. <br/>
+And He shall redeem Israel from all his iniquities. <br/>
 (Eternal rest or “Requiem aeternam”)
-Eternal rest give to them, O Lord.
-And let perpetual light shine upon them.
-May they rest in peace.
+Eternal rest give to them, O Lord. <br/>
+And let perpetual light shine upon them. <br/>
+May they rest in peace. <br/>
 Amen.
 
 ### Morning Offering
 O Jesus, through the Immaculate Heart of Mary, I offer you my prayers, works, joys and sufferings of this day for all the intentions of your Sacred Heart, in union with the Holy Sacrifice of the Mass throughout the world, for the salvation of souls, the reparation for sins, the reunion of all Christians, and in particular for the intentions of the Holy Father this month. Amen.
 
 ### We Fly to Thy Patronage
-We fly to Thy protection, O Holy Mother of God. Do not despise our petitions in our necessities, but deliver us always from all dangers, O Glorious and Blessed Virgin. Amen. 
+We fly to Thy protection, O Holy Mother of God. <br/>
+Do not despise our petitions in our necessities, but deliver us always from all dangers, O Glorious and Blessed Virgin. Amen.  <br/>
 May the Divine assistance remain always with us! Amen
 
 ## PRAYERS in MASS / LATIN MASS
@@ -323,21 +336,26 @@ Kyrie Eleison, Christe Eleison, Kyrie Eleison.
 
 Lord have mercy, Christ have mercy, Lord have mercy.
 
-Sanctus, Sanctus, Sanctus. 
-Dóminus Deus Sábaoth. Pleni sunt caeli et terra glória tua. Hosána in excélsis. Benedíctus qui venit in nómine Dómini. Hosána in excélsis.
+Sanctus, Sanctus, Sanctus. <br/>
+Dóminus Deus Sábaoth. Pleni sunt caeli et terra glória tua. <br/>
+Hosána in excélsis. Benedíctus qui venit in nómine Dómini. Hosána in excélsis.
 
-Holy, holy, holy,
-Lord, GOD of power and might. Heaven and earth are filled with Your glory. Hosanna in the highest. Blessed is He who comes in the name of the Lord. Hosanna to GOD in the highest. 
+Holy, holy, holy, <br/>
+Lord, GOD of power and might. Heaven and earth are filled with Your glory. <br/>
+Hosanna in the highest. Blessed is He who comes in the name of the Lord. Hosanna to GOD in the highest. 
 
 ### Act of Penitence
-I confess to almighty God and to you, my brothers and sisters, that I have greatly sinned, in my thoughts and in my words, in what I have done and in what I have failed to do,
-(And, striking their breast, they say:)
-through my fault, through my fault, through my most grievous fault; therefore I ask blessed Mary ever-Virgin, all the Angels and Saints, and you, my brothers and sisters to pray for me to the Lord our God.
+I confess to almighty God and to you, my brothers and sisters, <br/>
+that I have greatly sinned, in my thoughts and in my words, in what I have done and in what I have failed to do, 
+*(And, striking their breast, they say:)*
+through my fault, through my fault, through my most grievous fault; <br/>
+therefore I ask blessed Mary ever-Virgin, all the Angels and Saints, and you, my brothers and sisters  <br/>
+to pray for me to the Lord our God.
 
 ### Gloria
 Glory to God in the higest, and peace to his people on earth. Lord God, heavenly King, almighty God and Father, we worship you, we give you thanks, we praise you for your glory. 
 
-Lord Jesus Christ, only Son of the Father. Lord God, Lamb of God, you take away the sin of the world, have mercy on us; you are seated at the right hand of the Father, receive our prayer. 
+Lord Jesus Christ, only Son of the Father. Lord God, Lamb of God, you take away the sin of the world, have mercy on us; you are seated at the right hand of the Father, receive our prayer. <br/>
 For you alone are the Holy One, you alone are the Lord, you alone are the Most High, Jesus Christ, with the Holy Spirit in the glory of God the Father. Amen.
 
 ### Nicene Creed
@@ -382,13 +400,18 @@ O my Jesus, forgive us our sins, save us from the fires of hell; lead all souls 
 ## OTHER PRAYERS
 
 ### Act of Faith
-O my God, I firmly believe that you are one God in three divine Persons, Father, Son, and Holy Spirit. I believe that your divine Son became man and died for our sins and that he will come to judge the living and the dead. I believe these and all the truths which the Holy Catholic Church teaches because you have revealed them who are eternal truth and wisdom, who can neither deceive nor be deceived. In this faith I intend to live and die. Amen.
+O my God, I firmly believe that you are one God in three divine Persons, Father, Son, and Holy Spirit. <br/>
+I believe that your divine Son became man and died for our sins and that he will come to judge the living and the dead. <br/>
+I believe these and all the truths which the Holy Catholic Church teaches because you have revealed them who are eternal truth and wisdom, who can neither deceive nor be deceived. <br/>
+In this faith I intend to live and die. Amen.
 
 ### Act of Hope
-O Lord God, I hope by your grace for the pardon of all my sins and after life here to gain eternal happiness because you have promised it who are infinitely powerful, faithful, kind, and merciful. In this hope I intend to live and die. Amen.
+O Lord God, I hope by your grace for the pardon of all my sins and after life here to gain eternal happiness because you have promised it who are infinitely powerful, faithful, kind, and merciful. <br/>
+In this hope I intend to live and die. Amen.
 
 ### Act of Love
-O Lord God, I love you above all things and I love my neighbor for your sake because you are the highest, infinite and perfect good, worthy of all my love. In this love I intend to live and die. Amen.
+O Lord God, I love you above all things and I love my neighbor for your sake because you are the highest, infinite and perfect good, worthy of all my love. <br/>
+In this love I intend to live and die. Amen.
 
 ### Grace Before Meals
 Bless us, O Lord, and these thy gifts, which we are about to receive from thy bounty, through Christ our Lord. Amen
