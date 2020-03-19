@@ -469,17 +469,31 @@ Amen.
 ## Nguồn (Sources):
 
 https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html
+
 http://www.ducmeloducseattle.org/phung-vu/phung-vu-kinh-doc-hang-ngay/
+
 https://www.gxlavangoregon.com/tai-lieu/kinhdochangngay.php#
+
 http://www.honnho.com/DocKinh/TLongThuongXot.html
+
 https://www.conggiao.org/dao-cong-giao/tat-ca-cac-kinh/
+
 http://www.vietcatholicsydney.net/kinhdocthuongngay.php
+
 https://www.hddaminhthanhlinh.net/a4567/lay-nu-vuong-gia-dinh
+
 http://www.memaria.net/CacKinhCongGiao.html
+
 https://vi.wikipedia.org/wiki/T%C3%ADn_%C4%91i%E1%BB%81u_Nicea
 
 
+
 http://www.usccb.org/prayer-and-worship/prayers-and-devotions/prayers/index.cfm 
+
 https://ttnhalong.wordpress.com/2013/06/23/cac-kinh-tieng-anh-thuong-dungco-tieng-viet/
+
 https://osmm.org/devotion/holy-rosary
+
 https://www.catholicnewsagency.com/resources/prayers/basic-prayers/the-sign-of-the-cross
+
+
