@@ -498,6 +498,8 @@ Amen.
 
 [Catechism_of_the_Catholic_Church__2ed_1997__by__United_States_Catholic_Conference.pdf](Catechism_of_the_Catholic_Church__2ed_1997__by__United_States_Catholic_Conference.pdf)
 
+[BingSiteAuth.xml](BingSiteAuth.xml)
+
 Please send corrections, suggestions, comments, etc... to [info@KinhLe.com](mailto:info@kinhle.com?subject=KinhLe.com%20suggestions). Thanks!
 
 ---------------------------------------------------------------------------------------
