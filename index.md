@@ -1,6 +1,4 @@
-# Kinh Tieng Viet
-
-## Kinh Doc Hang Ngay 
+## KINH ĐỌC HẰNG NGÀY
 
 ### Kinh Dấu Thánh Giá
 Nhân danh Cha +, và Con, và Thánh Thần. Amen.  
@@ -91,7 +89,7 @@ Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê ch
 - Nữ Vương ban sự bằng an, <br/>
      Cầu cho chúng con.
 
-## Kinh trong Le
+## KINH TRONG THÁNH LỄ:
 
 Xin Chúa thương xót chúng con.
 Xin Chúa Kitô thương xót chúng con.
@@ -121,6 +119,7 @@ Tôi tin Hội Thánh duy nhất, thánh thiện, công giáo và tông truyền
 
 
 ## LẦN HẠT MÂN CÔI
+
 ### Năm Sự Vui
 1. Thứ nhất thì ngắm: Thiên Thần truyền tin cho Đức Bà chịu thai. Ta hãy xin cho được ở khiêm nhường.
 2. Thứ hai thì ngắm: Đức Bà đi viếng Bà thánh Isave. Ta hãy xin cho được lòng yêu người.
@@ -152,7 +151,7 @@ Tôi tin Hội Thánh duy nhất, thánh thiện, công giáo và tông truyền
 ### Lời Nguyện Mân Côi (Kinh Fatima)
 Lạy Chúa Giêsu, xin tha tội cho chúng con. Xin cứu chúng con khỏi sa hỏa ngục, xin đem các linh hồn lên thiên đàng, nhầt là những linh hồn cần đến lòng Chúa thương xót hơn.
 
-## Cac Kinh Khac
+## CÁC KINH KHÁC:
 
 ### Kinh Tin
 Lạy Chúa, con tin thật có một Đức Chúa Trời, là Đấng thưởng phạt vô cùng. Con lại tin thật Đức Chúa Trời có Ba Ngôi, mà Ngôi Thứ Hai đã xuống thế làm người chịu nạn chịu chết mà chuộc tội cho thiên hạ. Bấy nhiêu điều ấy cùng các điều Hội Thánh dạy, thì con tin vững vàng, vì Chúa là Đấng thông minh và chân thật vô cùng đã phán truyền cho Hội Thánh. Amen.
@@ -223,10 +222,10 @@ Thương người có mười bốn mối:
 
 
 ---------------------------------------------------------------------------------------
----------------------------------------------------------------------------------------
 
 # Prayers in English
-## Everyday Prayers:
+
+## EVERYDAY PRAYERS
 
 ### Sign Of The Cross
 In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
@@ -318,7 +317,7 @@ O Jesus, through the Immaculate Heart of Mary, I offer you my prayers, works, jo
 We fly to Thy protection, O Holy Mother of God. Do not despise our petitions in our necessities, but deliver us always from all dangers, O Glorious and Blessed Virgin. Amen. 
 May the Divine assistance remain always with us! Amen
 
-## Prayers in Mass/ Latin Mass
+## PRAYERS in MASS / LATIN MASS
 Kyrie Eleison, Christe Eleison, Kyrie Eleison.
 
 Lord have mercy, Christ have mercy, Lord have mercy.
@@ -379,7 +378,8 @@ I believe in one, holy, catholic and apostolic Church. I confess one Baptism for
 O my Jesus, forgive us our sins, save us from the fires of hell; lead all souls to Heaven, especially those who have most need of your mercy.
 
 
-## Other Prayers
+## OTHER PRAYERS
+
 ### Act of Faith
 O my God, I firmly believe that you are one God in three divine Persons, Father, Son, and Holy Spirit. I believe that your divine Son became man and died for our sins and that he will come to judge the living and the dead. I believe these and all the truths which the Holy Catholic Church teaches because you have revealed them who are eternal truth and wisdom, who can neither deceive nor be deceived. In this faith I intend to live and die. Amen.
 
