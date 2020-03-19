@@ -149,7 +149,7 @@ Tôi tin Hội Thánh duy nhất, thánh thiện, công giáo và tông truyền
 5. Thứ năm thì ngắm: Đức Chúa Giêsu lập phép Thánh Thể. Ta hãy xin cho được siêng năng rước Mình Máu Thánh Người.
 
 ### Lời Nguyện Mân Côi (Kinh Fatima)
-Lạy Chúa Giêsu, xin tha tội cho chúng con. Xin cứu chúng con khỏi sa hỏa ngục, xin đem các linh hồn lên thiên đàng, nhầt là những linh hồn cần đến lòng Chúa thương xót hơn.
+Lạy Chúa Giêsu, xin tha tội cho chúng con. Xin cứu chúng con khỏi sa hỏa ngục, xin đem các linh hồn lên thiên đàng, nhất là những linh hồn cần đến lòng Chúa thương xót hơn.
 
 ## CÁC KINH KHÁC:
 
