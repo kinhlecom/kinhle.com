@@ -489,7 +489,13 @@ Amen.
 
 
 ---------------------------------------------------------------------------------------
+## Resources:
+[Version for offline reading on mobile devices](Kinh_Prayers__www.kinhle.com.pdf)
+[Version for print-out](Kinh_Prayers__www.kinhle.com__print.pdf)
+[Catholic.Prayers.01.pdf](Catholic.Prayers.01.pdf)
+[Catechism_of_the_Catholic_Church__2ed_1997__by__United_States_Catholic_Conference.pdf](Catechism_of_the_Catholic_Church__2ed_1997__by__United_States_Catholic_Conference.pdf)
 
+---------------------------------------------------------------------------------------
 ## Nguồn (Sources):
 
 [https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html](https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html)
