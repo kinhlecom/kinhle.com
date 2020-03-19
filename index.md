@@ -135,8 +135,8 @@ Tôi tin Hội Thánh duy nhất, thánh thiện, công giáo và tông truyền
 5. Thứ năm thì ngắm: Đức Chúa Giêsu chịu chết trên cây thánh giá. Ta hãy xin đóng đinh tính xác thịt vào thánh giá Chúa.
 
 ### Năm Sự Mừng
-1. Thứ nhất thì ngắm: Đức Chúa Giêsu sống lai. Ta hãy xin cho được sống lại thật về phần linh hồn.
-2. Thứ hai thì ngắm: Đức Chúa Giêsu lên trời. Ta hãy xin cho được. aí mộ những sự trên trời.
+1. Thứ nhất thì ngắm: Đức Chúa Giêsu sống lại. Ta hãy xin cho được sống lại thật về phần linh hồn.
+2. Thứ hai thì ngắm: Đức Chúa Giêsu lên trời. Ta hãy xin cho được ái mộ những sự trên trời.
 3. Thứ ba thì ngắm: Đức Chúa Thánh thần hiện xuống. Ta hãy xin cho được lòng đầy dẫy mọi ơn Đức Chúa Thánh Thần.
 4. Thứ bốn thì ngắm: Đức Chúa Trời cho Đức Mẹ lên trời. Ta hãy xin ơn chết lành trong tay Đức Mẹ.
 5. Thứ năm thì ngắm: Đức Chúa Trời thưởng Đức Mẹ trên trời. Ta hãy xin Đức Mẹ phù hộ cho ta được hưởng cùng Đức Mẹ trên nước Thiên Đàng.
