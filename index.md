@@ -442,7 +442,7 @@ The Spritual Works of Mercy:
 
 ### Prayer to One’s Guardian Angel
 Angel of God, my guardian dear, <br/>
-to whom God’s love commitsme here,  <br/>
+to whom God’s love commits me here,  <br/>
 ever this day be at my side,  <br/>
 to light and guard, to rule and guide. <br/>
 Amen
