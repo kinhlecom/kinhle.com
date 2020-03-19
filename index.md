@@ -441,7 +441,11 @@ The Spritual Works of Mercy:
 7. Praying for the living and the dead.
 
 ### Prayer to One’s Guardian Angel
-Angel of God, my guardian dear, to whom God’s love commitsme here, ever this day be at my side, to light and guard, to rule and guide. Amen
+Angel of God, my guardian dear, <br/>
+to whom God’s love commitsme here,  <br/>
+ever this day be at my side,  <br/>
+to light and guard, to rule and guide. <br/>
+Amen
 
 ### Jesus Prayer
 Lord Jesus Christ, Son of the living God, have mercy on me, a sinner. Amen
