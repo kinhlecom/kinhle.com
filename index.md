@@ -229,6 +229,7 @@ Thương người có mười bốn mối:
 
 ### Sign Of The Cross
 In the name of the Father, and of the Son, and of the Holy Spirit. Amen.
+
 In nomine Patris, et Filii, et Spiritus Sancti. Amen
 
 By the sign + of the cross, deliver us + from our enemies, you who are our God. In the name of the Father and of the Son, and of the Holy Spirit. Amen.
