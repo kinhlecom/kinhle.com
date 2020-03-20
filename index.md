@@ -216,6 +216,15 @@ Hội thánh có sáu điều răn:
 6. Thứ sáu: là phép Truyền Chức Thánh.
 7. Thứ bảy: là phép Hôn Phối.
 
+### Kinh Cải tội bảy mối:
+Cải tội bảy mối có bảy đức:
+1. Thứ nhất: khiêm nhường, chớ kiêu ngạo.
+2. Thứ hai: rộng rãi, chớ hà tiện.
+3. Thứ ba: giữ mình sạch sẽ, chớ mê dâm dục.
+4. Thứ bốn: hay nhịn, chớ hờn giận.
+5. Thứ năm: kiêng bớt chớ mê ăn uống.
+6. Thứ sáu: yêu người chớ ghen ghét.
+7. Thứ bảy: siêng năng việc Đức Chúa Trời, chớ làm biếng.
 
 ### Kinh Tám Mối Phúc Thật
 Phúc thật Tám Mối:
@@ -470,6 +479,15 @@ Bless us, O Lord, and these thy gifts, which we are about to receive from thy bo
 6. Holy Orders 
 7. Matrimony (Marriage). 
 
+### Seven Lively Virtues vs Seven Deadly Sins
+1. Humility: Pride (superbia), ngạo mạn (Lucifer)
+2. Generosity: Greed (avaritia), tham lam   (Mammon)
+3. Chastity: Lust (luxuria), dâm dục       (Asmodeus)
+4. Patience: Wrath (ira), phẫn nộ            (Behemoth)
+5. Temperance: Gluttony (gula/gullia), phàm ăn (Beelzebub)
+6. Kindness: Envy (invidia), đố kỵ          (Leviathan)
+7. Diligence: Sloth (acedia), lười biếng  (Belphegor)
+
 ### The Beatitudes:
 1. Blessed are the poor in spirit, for theirs is the kingdom of heaven.
 2. Blessed are they who mourn, for they will be comforted.
@@ -541,6 +559,10 @@ Please send corrections, suggestions, comments, etc... to [info@KinhLe.com](mail
 
 [https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html](https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html)
 
+[https://gpcantho.com/nhung-kinh-thuong-doc/](https://gpcantho.com/nhung-kinh-thuong-doc/)
+
+[http://giaophanvinhlong.net/Cac-Kinh-Quen-Doc.html](http://giaophanvinhlong.net/Cac-Kinh-Quen-Doc.html)
+
 [http://www.ducmeloducseattle.org/phung-vu/phung-vu-kinh-doc-hang-ngay/
 ](http://www.ducmeloducseattle.org/phung-vu/phung-vu-kinh-doc-hang-ngay/)
 
@@ -553,14 +575,14 @@ Please send corrections, suggestions, comments, etc... to [info@KinhLe.com](mail
 [http://www.vietcatholicsydney.net/kinhdocthuongngay.php
 ](http://www.vietcatholicsydney.net/kinhdocthuongngay.php)
 
+[http://www.memaria.net/CacKinhCongGiao.html](http://www.memaria.net/CacKinhCongGiao.html)
+
 [https://www.hddaminhthanhlinh.net/a4567/lay-nu-vuong-gia-dinh](https://www.hddaminhthanhlinh.net/a4567/lay-nu-vuong-gia-dinh)
 
-[http://www.memaria.net/CacKinhCongGiao.html](http://www.memaria.net/CacKinhCongGiao.html)
 
 [https://vi.wikipedia.org/wiki/T%C3%ADn_%C4%91i%E1%BB%81u_Nicea](https://vi.wikipedia.org/wiki/T%C3%ADn_%C4%91i%E1%BB%81u_Nicea)
 
-https://gpcantho.com/nhung-kinh-thuong-doc/
-http://giaophanvinhlong.net/Cac-Kinh-Quen-Doc.html
+
 
 
 ### English Sources:
