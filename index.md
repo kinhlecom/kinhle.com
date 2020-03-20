@@ -1,9 +1,9 @@
 ## KINH ĐỌC HẰNG NGÀY
 
-### Kinh Dấu Thánh Giá
+### Dấu Thánh Giá
 Nhân danh Cha +, và Con, và Thánh Thần. Amen.  
 
-### Kinh Vì Dấu
+### Dấu Thánh Giá Kép:
 Lạy Chúa chúng con, vì dấu + Thánh giá, xin chữa + chúng con, cho khỏi + kẻ thù. Nhân danh Cha +, và Con, và Thánh Thần. Amen. 
 
 ### Kinh Đức Chúa Thánh Thần
@@ -55,8 +55,8 @@ Lạy Nữ Vương gia đình, Mẹ ở đây với chúng con, vui buồn sư�
 Lạy ơn Ông Thánh Giuse, chúng con chạy đến cùng Người trong cơn gian nan chúng con mắc phải. Chúng con đã kêu van cùng Rất Thánh Đức Bà, là Đấng đã làm bạn cùng Người, phù hộ gìn giữ chúng con. Thì chúng con cũng lấy lòng trông cậy cho vững vàng mà xin Ông Thánh Giuse bầu cử cho chúng con như vậy. Chúng con xin vì nhân đức kính mến, mà Người làm bạn cùng Rất Thánh Đồng Trinh là Mẹ Chúa Trời, và là Đấng chẳng hề mắc tội Tổ Tông truyền; cùng vì lòng thương Người đã ẵm lấy Đức Chúa Giêsu, thì chúng con xin Ông Thánh Giuse ghé mặt lại mà thương đến Hội Thánh là phần sản nghiệp Đức Chúa Giêsu đã lấy Máu Thánh mình mà chuộc. Lại xin Người dùng sức mạnh thiêng liêng, và quyền phép Người mà giúp đỡ những sự chúng con còn thiếu thốn. <br/>
 Lạy Đấng đã coi sóc Đức Chúa Giêsu cùng Đức Bà cho cẩn thận, thì chúng con xin Người bênh vực con cái Đức Chúa Giêsu đã chọn. Lạy Cha rất thương yêu, chúng con xin Người cất mọi sự dối trá cùng mọi tội lỗi, cho chúng con khỏi mắc phải những sự ấy. Lạy Đấng rất mạnh đang ở trên trời, xin gìn giữ chúng con. Xin Người dủ lòng thương mà che chở chúng con đang khi chiến trận cùng kẻ thù tối tăm là các ma quỉ. Như xưa Người đã gìn giữ Đức Chúa Giêsu cho khỏi cơn hiểm nghèo thế nào, thì rày chúng con cũng xin Người cứu chữa lấy Hội Thánh cho khỏi các mưu kế giặc thù, và các sự gian nan khốn khó như vậy. Cùng xin Người hằng bầu cử cho chúng con được bắt chước Người, và cậy trông vì quyền thế Người cho được giữ đạo cho trọn, cùng được chết lành, và được hưởng phúc vô cùng trên Thiên đàng. Amen.
 
-### Kinh Bởi Lời
-Lạy Ðức Chúa Giêsu xưa bởi lời mà xuống thế gian 33 năm, cùng chịu những sự thương khó cho các linh hồn được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
+### Kinh Bởi Trời
+Lạy ơn Ðức Chúa Giêsu xưa bởi Trời mà xuống thế gian 33 năm, cùng chịu những sự thương khó cho các linh hồn được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
 
 ### Kinh Vực Sâu
 Lạy Chúa con, con ở dưới vực sâu kêu lên Chúa con, xin Chúa con hãy thương nhậm lời con kêu van, hãy lắng nghe tiếng con cầu xin. Nếu Chúa con chấp tội, nào ai rỗi được? Bởi Chúa con hằng có lòng lành, cùng vì lời Chúa con phán hứa, con đã trông cậy Chúa con. Linh hồn con cậy vì lời hứa ấy thì đã trông cậy Chúa con. Những kẻ làm dân Đức Chúa Trời, đêm ngày hãy trông cậy Người cho liên, vì Người rất nhân lành hay thương vô cùng, sẽ tha hết mọi tội lỗi kẻ làm dân Người thay thảy. <br/>
@@ -66,7 +66,7 @@ Lạy Chúa con, xin ban cho *(các linh hồn / linh hồn … )* được ngh�
 Lạy Chúa con, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ được. Vậy con xin Chúa con lòng lành vô cùng thương đến các linh hồn nơi lửa luyện tội. Xin Chúa con nghe lời con cầu xin kêu van, cho linh hồn ông bà, cha mẹ, anh em, bạn hữu con. Xin Chúa con mở cửa thiên đàng cho các linh hồn ấy vào. Xin cho các linh hồn ấy được sự sống vô cùng hằng soi cho liên. Amen
 
 ### Kinh Dâng Ngày
-Lạy Rất Thánh Trái Tim Đức Chúa Giêsu, con nhờ Trái Tim Cực Sạch Đức Bà Maria mà dâng cho Trái Tim Chúa mọi lời con cầu xin, mọi việc con làm, mọi sự khó con chịu trong ngày hôm nay, cho được đền vì tội lỗi con và cầu nguyện theo ý Chúa . Khi dâng mình tế lễ trên bàn thờ, con lại dâng các sự ấy cho Trái Tim Chúa, có ý cầu nguyện cách riêng theo ý Đức Giáo Hoàng.
+Lạy Trái Tim Cực Thánh Ðức Chúa Giêsu, con nhờ Trái Tim Cực Sạch Đức Bà Maria mà dâng cho Trái Tim Chúa mọi lời con cầu xin, mọi việc con làm, mọi sự khó con chịu trong ngày hôm nay, cho được đền vì tội lỗi con và cầu nguyện theo ý Chúa . Khi dâng mình tế lễ trên bàn thờ, con lại dâng các sự ấy cho Trái Tim Chúa, có ý cầu nguyện cách riêng theo ý Đức Giáo Hoàng.
 
 ### Kinh Dâng Đêm
 Trời đã xế chiều, Giêsu ơi con nhờ tay Mẹ Maria mà dâng lên Chúa, dâng chúc lời cám ơn, dâng trót cả xác hồn. Các việc con làm, các lời con xin, cùng với mọi khó nguy con chịu trót một ngày qua.
@@ -537,6 +537,10 @@ Please send corrections, suggestions, comments, etc... to [info@KinhLe.com](mail
 [http://www.memaria.net/CacKinhCongGiao.html](http://www.memaria.net/CacKinhCongGiao.html)
 
 [https://vi.wikipedia.org/wiki/T%C3%ADn_%C4%91i%E1%BB%81u_Nicea](https://vi.wikipedia.org/wiki/T%C3%ADn_%C4%91i%E1%BB%81u_Nicea)
+
+https://gpcantho.com/nhung-kinh-thuong-doc/
+http://giaophanvinhlong.net/Cac-Kinh-Quen-Doc.html
+
 
 ### English Sources:
 
