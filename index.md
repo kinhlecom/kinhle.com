@@ -95,7 +95,7 @@ Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê ch
       Cầu cho chúng con.
 - Nữ Vương ban sự bằng an, <br/>
      Cầu cho chúng con.
-- Lạy Đức Mẹ Hằng Cứu Giúp. <br/>
+- Lạy Đức Mẹ Hằng Cứu Giúp,  <br/>
      Cầu cho chúng con.
      
 - Giêsu Maria Giuse con mến yêu,
@@ -205,6 +205,17 @@ Hội thánh có sáu điều răn:
 4. Thứ bốn: Chịu Mình Thánh Ðức Chúa Giêsu trong Mùa Phục Sinh.
 5. Thứ năm: Giữ chay những ngày Hội thánh buộc.
 6. Thứ sáu: Kiêng thịt những ngày Hội thánh dạy.
+
+### Bảy Phép Bí Tích:
+Đạo Đức Chúa Trời có bảy phép Bí Tích:
+1. Thứ nhất: là phép Rửa tội.
+2. Thứ hai: là phép Thêm sức.
+3. Thứ ba: là phép Mình Thánh Chúa. (Thánh Thể)
+4. Thứ bốn: là phép Giải tội.
+5. Thứ năm: là phép Xức Dầu Thánh. (Bệnh nhân)
+6. Thứ sáu: là phép Truyền Chức Thánh.
+7. Thứ bảy: là phép Hôn Phối.
+
 
 ### Kinh Tám Mối Phúc Thật
 Phúc thật Tám Mối:
@@ -324,7 +335,7 @@ we may be able to live piously, to die in holiness, <br/>
 and to obtain eternal happiness in heaven. <br/>
 Amen.
 
-### De Profundis (Psalm 130)
+### De Profundis (Psalm 129/130)
 Out of the depths I have cried unto Thee, O Lord; Lord, hear my voice. <br/>
 Let Thine ears be attentive to the voice of my supplication. If Thou, O Lord, shalt mark our iniquities: O Lord, who can abide it? <br/>
 For with Thee there is mercy: and by reason of Thy law I have waited on Thee, O Lord. <br/>
@@ -443,11 +454,21 @@ Bless us, O Lord, and these thy gifts, which we are about to receive from thy bo
 10. You shall not covet your neighbor's goods.
 
 ### Six Precepts of the Catholic Church:
-1+2. You shall attend Mass on Sundays and holy days of obligation and rest from servile labor .
+1. You shall attend Mass on Sundays and holy days of obligation and rest from servile labor .
+2. You shall attend Mass on Sundays and holy days of obligation and rest from servile labor .
 3. You shall confess your sins at least once a year.
 4. You shall humbly receive your Creator in Holy Communion at least during the Easter season.
 5. You shall keep holy the holy days of obligation.
 6. You shall observe the prescribed days of fasting and abstinence.
+
+### The Sacraments:
+1. Baptism, 
+2. Confirmation
+3. Eucharist (Holy Communion)
+4. Reconciliation (Penance)
+5. Anointing of the Sick
+6. Holy Orders 
+7. Matrimony (Marriage). 
 
 ### The Beatitudes:
 1. Blessed are the poor in spirit, for theirs is the kingdom of heaven.
