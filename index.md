@@ -90,7 +90,7 @@ Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê ch
       Cầu cho chúng con.
 - Nữ Vương ban sự bằng an, <br/>
      Cầu cho chúng con.
-- Lạy Đức Mẹ Hằng Cứu Giúp.
+- Lạy Đức Mẹ Hằng Cứu Giúp. <br/>
      Cầu cho chúng con.
      
 - Giêsu Maria Giuse con mến yêu,
