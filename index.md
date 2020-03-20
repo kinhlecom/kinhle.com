@@ -90,6 +90,15 @@ Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê ch
       Cầu cho chúng con.
 - Nữ Vương ban sự bằng an, <br/>
      Cầu cho chúng con.
+- Lạy Đức Mẹ Hằng Cứu Giúp.
+     Cầu cho chúng con.
+     
+- Giêsu Maria Giuse con mến yêu,
+xin cứu rỗi các linh hồn.
+- Giêsu Maria Giuse con mến yêu,
+xin cứu rỗi các gia đình.
+- Giêsu Maria Giuse con mến yêu,
+xin cứu rỗi gia đình con.
 
 ## KINH TRONG THÁNH LỄ:
 
