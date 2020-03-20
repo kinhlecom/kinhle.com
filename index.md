@@ -68,6 +68,11 @@ Lạy Chúa con, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ �
 ### Kinh Dâng Ngày
 Lạy Rất Thánh Trái Tim Đức Chúa Giêsu, con nhờ Trái Tim Cực Sạch Đức Bà Maria mà dâng cho Trái Tim Chúa mọi lời con cầu xin, mọi việc con làm, mọi sự khó con chịu trong ngày hôm nay, cho được đền vì tội lỗi con và cầu nguyện theo ý Chúa . Khi dâng mình tế lễ trên bàn thờ, con lại dâng các sự ấy cho Trái Tim Chúa, có ý cầu nguyện cách riêng theo ý Đức Giáo Hoàng.
 
+### Kinh Dâng Đêm
+Trời đã xế chiều, Giêsu ơi con nhờ tay Mẹ Maria mà dâng lên Chúa, dâng chúc lời cám ơn, dâng trót cả xác hồn. Các việc con làm, các lời con xin, cùng với mọi khó nguy con chịu trót một ngày qua.
+Cùng với bóng chiều tà, Giêsu Maria, con hòa ca, dâng về nơi bao la. Chúa ban phép lành, một đêm ngủ an bình, hồn trong xác tươi xinh.
+
+
 ### Kinh Phó Dâng 
 Lạy Chúa con, con xin phó dâng linh hồn và xác con ở tay Chúa con, Chúa đã phù hộ con ban *(ngày / đêm)*, thì xin Chúa cũng gìn giữ con ban *(đêm / ngày)*, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
 
