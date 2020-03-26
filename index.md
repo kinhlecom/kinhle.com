@@ -1,69 +1,66 @@
 ## KINH ĐỌC HẰNG NGÀY
 
-### Dấu Thánh Giá
-Nhân danh Cha +, và Con, và Thánh Thần. Amen.  
+### Dấu Thánh Giá (Đơn)
+Nhân danh Cha, và Con, và Thánh Thần. Amen.  
 
-### Dấu Thánh Giá Kép:
-Lạy Chúa chúng con, vì dấu + Thánh giá, xin chữa + chúng con, cho khỏi + kẻ thù. Nhân danh Cha +, và Con, và Thánh Thần. Amen. 
+### Dấu Thánh Giá (Kép)
+Lạy Chúa chúng con, vì dấu + Thánh giá, xin chữa + chúng con, cho khỏi + kẻ thù. Nhân danh Cha, và Con, và Thánh Thần. Amen. 
 
 ### Kinh Đức Chúa Thánh Thần
-Chúng con lạy ơn Đức Chúa Thánh Thần thiêng liêng sáng láng vô cùng. Chúng con xin Đức Chúa Thánh Thần xuống đầy lòng chúng con, là kẻ tin cậy Đức Chúa Trời, và đốt lửa kính mến Đức Chúa Trời trong lòng chúng con, chúng con xin Đức Chúa Trời cho Đức Chúa Thánh Thần xuống - Sửa lại mọi sự trong ngoài chúng con. Chúng con cầu cùng Đức Chúa Trời, xưa đã cho Đức Chúa Thánh Thần xuống soi lòng dạy dỗ các thánh Tông đồ, thì rầy chúng con cũng xin Đức Chúa Trời cho Đức Chúa Thánh Thần lại xuống yên ủi dạy dỗ chúng con làm những việc lành; vì công nghiệp vô cùng Đức Chúa Giêsu Kitô là Chúa chúng con. Amen. 
+Chúng con lạy ơn Đức Chúa Thánh Thần thiêng liêng sáng láng vô cùng. Chúng con xin Đức Chúa Thánh Thần xuống đầy lòng chúng con là kẻ tin cậy Đức Chúa Trời, và đốt lửa kính mến Đức Chúa Trời trong lòng chúng con, chúng con xin Đức Chúa Trời cho Đức Chúa Thánh Thần xuống, sửa lại mọi sự trong ngoài chúng con.
+Chúng con cầu cùng Đức Chúa Trời, xưa đã cho Đức Chúa Thánh Thần xuống soi lòng dạy dỗ các thánh Tông đồ, thì rầy chúng con cũng xin Đức Chúa Trời cho Đức Chúa Thánh Thần lại xuống yên ủi dạy dỗ chúng con làm những việc lành; vì công nghiệp vô cùng Đức Chúa Giêsu Kitô là Chúa chúng con. Amen.
 
 ### Kinh Ăn Năn Tội
-Lạy Chúa, Chúa là Đấng trọn tốt trọn lành vô cùng, Chúa đã dựng nên con, và cho Con Chúa ra đời chịu nạn chịu chết vì con, mà con đã cả lòng phản nghịch lỗi nghĩa cùng Chúa, thì con lo buồn đau đớn cùng chê ghét mọi tội con trên hết mọi sự, con dốc lòng chừa cải và nhờ ơn Chúa thì con sẽ tránh xa dịp tội, cùng làm việc đền tội cho xứng. Amen.
+Lạy Chúa (con), Chúa là Đấng trọn tốt trọn lành vô cùng, Chúa đã dựng nên con, và cho Con Chúa ra đời chịu nạn chịu chết vì con, mà con đã cả lòng phản nghịch lỗi nghĩa cùng Chúa, thì con lo buồn đau đớn, cùng chê ghét mọi tội con trên hết mọi sự. Con dốc lòng chừa cải, và nhờ ơn Chúa, thì con sẽ tránh xa dịp tội, cùng làm việc đền tội cho xứng. Amen.
 
 ### Kinh Tin Kính
-Tôi tin kính Đức Chúa Trời, là Cha phép tắc vô cùng dựng nên trời đất. <br/>
-Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng tôi, bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Maria Đồng Trinh, chịu nạn đời quan Phongxiô Philatô, chịu đóng đanh trên cây Thánh Giá, chết và táng xác, xuống ngục tổ tông, ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết.<br/>
+Tôi tin kính Đức Chúa Trời là Cha phép tắc vô cùng dựng nên trời đất. <br/>
+Tôi tin kính Đức Chúa Giêsu Kitô là Con Một Đức Chúa Cha, cùng là Chúa chúng con; bởi phép Đức Chúa Thánh Thần mà Người xuống thai, sinh bởi Bà Maria Đồng Trinh; chịu nạn đời quan Phongxiô Philatô, chịu đóng đinh trên cây Thánh Giá, chết và táng xác, xuống ngục tổ tông; ngày thứ ba bởi trong kẻ chết mà sống lại; lên trời ngự bên hữu Đức Chúa Cha phép tắc vô cùng; ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết. <br/>
 Tôi tin kính Đức Chúa Thánh Thần. Tôi tin có Hội Thánh hằng có ở khắp thế này, các thánh thông công. Tôi tin phép tha tội. Tôi tin xác loài người ngày sau sống lại. Tôi tin hằng sống vậy. Amen.
 
 ### Kinh Lạy Cha
 Lạy Cha chúng con ở trên trời, chúng con nguyện danh Cha cả sáng, nước Cha trị đến, ý Cha thể hiện dưới đất cũng như trên trời.
-Xin Cha cho chúng con hôm nay lương thực hằng ngày, và tha nợ chúng con như chúng con cũng tha kẻ có nợ chúng con. Xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi mọi sự dữ. Amen.
+Xin Cha cho chúng con hôm nay lương thực hằng ngày, và tha nợ chúng con, như chúng con cũng tha kẻ có nợ chúng con. Xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi sự dữ. Amen.
 
 ### Kinh Kính Mừng
-Kính mừng Maria đầy ơn phúc, Đức Chúa Trời ở cùng Bà, Bà có phúc lạ hơn mọi người nữ, và Giêsu con lòng Bà gồm phúc lạ. Thánh Maria Đức Mẹ Chúa Trời, cầu cho chúng con là kẻ có tội khi này và trong giờ lâm tử. Amen. 
+Kính mừng Maria đầy ơn phúc, Đức Chúa Trời ở cùng Bà, Bà có phúc lạ hơn mọi người nữ, và Giêsu con lòng Bà gồm phúc lạ. Thánh Maria Đức Mẹ Chúa Trời, cầu cho chúng con là kẻ có tội khi nay và trong giờ lâm tử. Amen. *(x10)*
 
 ### Kinh Sáng Danh
 Sáng danh Đức Chúa Cha, và Đức Chúa Con, và Đức Chúa Thánh Thần. Như đã có trước vô cùng, và bây giờ, và hằng có, và đời đời chẳng cùng. Amen.
 
-### Lời Nguyện Mân Côi (Kinh Fatima)
-Lạy Chúa Giêsu, xin tha tội cho chúng con. Xin cứu chúng con khỏi sa hỏa ngục, xin đem các linh hồn lên thiên đàng, nhầt là những linh hồn cần đến lòng Chúa thương xót hơn.
-
 ### Kinh Lòng Chúa Thương Xót 
-Lạy Cha Hằng Hữu, con xin dâng Cha Mình Máu Thánh, Linh Hồn và Thiên Tính của Con rất Yêu Dấu Cha là Đức Giêsu Kitô Chúa chúng con, để đền vì tội lỗi chúng con và toàn thế giới.
+Kinh Lòng Chúa Thương Xót: 
+Lạy Cha Hằng Hữu, con xin dâng lên Cha Mình và Máu, Linh hồn và Thần Tính của Con rất yêu dấu Cha, là Chúa Giêsu Kitô, Chúa chúng con. *Để đền vì tội lỗi chúng con và toàn thế giới.*
 
-Vì cuộc Khổ Nạn đau thương của Chúa Giêsu Kitô, xin Cha thương xót chúng con và toàn thế giớí.  *(x10)*
+Vì cuộc Khổ Nạn đau thương của Chúa Giêsu Kitô.
+*Xin Cha thương xót chúng con và toàn thế giới.  (x10)*
 
-Lạy Đấng Chí Thánh, là Thiên Chúa Toàn Năng Hằng Hữu, xin thương xót chúng con và toàn thế giới. *(x3)*
+Lạy Đấng Chí Thánh, là Thiên Chúa Toàn Năng Hằng Hữu.
+*Xin thương xót chúng con và toàn thế giới. (x3)*
 
-Ôi! Máu và Nước tuôn ra từ Trái Tim Chúa Giêsu, là nguồn mạch Lòng Chúa Thương Xót, chúng con trông cậy nơi Ngài. *(x3)*  
+Kính Lạy Máu và Nước đã tuôn trào từ Thánh Tâm Chúa Giêsu, như thác nguồn Lòng Chúa Thương Xót chúng con, con tín thác vào Chúa.
 
 ### Kinh Lạy Nữ Vương
-Lạy Nữ Vương Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ, chúng con, con cháu E-và ở chốn khách đầy, kêu đến cùng Bà; Chúng con ở nơi khóc lóc than thở kêu khấn Bà thương. Hỡi ôi! Bà là Chúa bầu chúng con, xin ghé mắt thương xem chúng con. Đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu, Con lòng Bà gồm phúc lạ. <br/>
+Lạy Nữ Vương Mẹ nhân lành làm cho chúng con được sống, được vui, được cậy. Thân lạy Mẹ, chúng con, con cháu E-và ở chốn khách đày, kêu đến cùng Bà. Chúng con ở nơi khóc lóc than thở kêu khấn Bà thương. Hỡi ôi! Bà là Chúa bầu chúng con, xin ghé mắt thương xem chúng con. Đến sau khỏi đày, xin cho chúng con được thấy Đức Chúa Giêsu, Con lòng Bà gồm phúc lạ. <br/>
 Ôi khoan thay! nhân thay! dịu thay! Thánh Maria trọn đời đồng trinh. Amen.
 
 ### Kinh Hãy Nhớ
-Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ xưa nay chưa từng nghe có người nào chạy đến cùng Đức Mẹ xin bầu chữa cứu giúp, mà Đức Mẹ từ bỏ chẳng nhận lời. <br/>
-Nhân vì sự ấy, con lấy lòng trông cậy than van chạy đến sấp mình xuống dưới chân Đức Mẹ, là Nữ Đồng Trinh trên hết các kẻ đồng trinh, xin Đức Mẹ đoái đến con, là kẻ tội lỗi. <br/>
+Lạy Thánh Nữ Đồng Trinh Maria là Mẹ rất nhân từ, xin hãy nhớ xưa nay chưa từng nghe có người nào chạy đến cùng Đức Mẹ, xin bầu chữa cứu giúp, mà Đức Mẹ từ bỏ chẳng nhận lời. <br/>
+Nhân vì sự ấy, con lấy lòng trông cậy than van, chạy đến sấp mình xuống dưới chân Đức Mẹ, là Nữ Đồng Trinh, trên hết các kẻ đồng trinh, xin Đức Mẹ đoái đến con, là kẻ tội lỗi. <br/>
 Lạy Mẹ là Mẹ Chúa Cứu Thế, xin chớ bỏ lời con kêu xin, một dủ lòng thương mà nhận lời con cùng. Amen.
 
 ### Kinh Lạy Nữ Vương Gia Đình
-Lạy Nữ Vương gia đình, Mẹ ở đây với chúng con, vui buồn sướng khổ, Mẹ con cùng nhau chia sẻ. Xa Mẹ chúng con biết cậy trong ai? Đời chúng con gian nan khổ sở lắm, gia đình chúng con long đong tối ngày, nhưng có Mẹ ở bên chúng con, chúng con thấy quên hết ưu phiền, vui sống qua kiếp lưu đày, mong ngày sau sung sướng cùng Mẹ muôn đời trên thiên đàng. Amen.
+Lạy Nữ Vương gia đình, Mẹ ở đây với chúng con, vui buồn sướng khổ, Mẹ con cùng nhau chia sẻ. Xa Mẹ chúng con biết cậy trông ai? Đời chúng con gian nan khổ sở lắm, gia đình chúng con long đong tối ngày, nhưng có Mẹ ở bên chúng con, chúng con thấy quên hết ưu phiền, vui sống qua kiếp lưu đày, mong ngày sau sung sướng cùng Mẹ muôn đời trên thiên đàng. Amen.
 
 ### Kinh Ông Thánh Giuse bầu cử
-Lạy ơn Ông Thánh Giuse, chúng con chạy đến cùng Người trong cơn gian nan chúng con mắc phải. Chúng con đã kêu van cùng Rất Thánh Đức Bà, là Đấng đã làm bạn cùng Người, phù hộ gìn giữ chúng con. Thì chúng con cũng lấy lòng trông cậy cho vững vàng mà xin Ông Thánh Giuse bầu cử cho chúng con như vậy. Chúng con xin vì nhân đức kính mến, mà Người làm bạn cùng Rất Thánh Đồng Trinh là Mẹ Chúa Trời, và là Đấng chẳng hề mắc tội Tổ Tông truyền; cùng vì lòng thương Người đã ẵm lấy Đức Chúa Giêsu, thì chúng con xin Ông Thánh Giuse ghé mặt lại mà thương đến Hội Thánh là phần sản nghiệp Đức Chúa Giêsu đã lấy Máu Thánh mình mà chuộc. Lại xin Người dùng sức mạnh thiêng liêng, và quyền phép Người mà giúp đỡ những sự chúng con còn thiếu thốn. <br/>
-Lạy Đấng đã coi sóc Đức Chúa Giêsu cùng Đức Bà cho cẩn thận, thì chúng con xin Người bênh vực con cái Đức Chúa Giêsu đã chọn. Lạy Cha rất thương yêu, chúng con xin Người cất mọi sự dối trá cùng mọi tội lỗi, cho chúng con khỏi mắc phải những sự ấy. Lạy Đấng rất mạnh đang ở trên trời, xin gìn giữ chúng con. Xin Người dủ lòng thương mà che chở chúng con đang khi chiến trận cùng kẻ thù tối tăm là các ma quỉ. Như xưa Người đã gìn giữ Đức Chúa Giêsu cho khỏi cơn hiểm nghèo thế nào, thì rày chúng con cũng xin Người cứu chữa lấy Hội Thánh cho khỏi các mưu kế giặc thù, và các sự gian nan khốn khó như vậy. Cùng xin Người hằng bầu cử cho chúng con được bắt chước Người, và cậy trông vì quyền thế Người cho được giữ đạo cho trọn, cùng được chết lành, và được hưởng phúc vô cùng trên Thiên đàng. Amen.
+Lạy ơn Ông Thánh Giuse, chúng con chạy đến cùng Người trong cơn gian nan chúng con mắc phải; chúng con đã kêu van cùng Rất Thánh Đức Bà, là Đấng đã làm bạn cùng Người, phù hộ gìn giữ chúng con, thì chúng con cũng lấy lòng trông cậy vững vàng mà xin Ông Thánh Giuse bầu cử cho chúng con như vậy. Chúng con xin vì nhân đức kính mến mà Người làm bạn cùng Rất Thánh Đồng Trinh là Mẹ Chúa Trời, và là Đấng chẳng mắc tội Tổ Tông truyền; cùng vì lòng thương Người đã ẵm lấy Đức Chúa Giêsu, thì chúng con xin Ông Thánh Giuse ghé mặt lại mà thương đến Hội Thánh là phần sản nghiệp Đức Chúa Giêsu đã lấy Máu Thánh mình mà chuộc. Lại xin Người dùng sức mạnh thiêng liêng, và quyền phép Người mà giúp đỡ những sự chúng con còn thiếu thốn. <br/>
+Lạy Đấng đã coi sóc Đức Chúa Giêsu cùng Đức Bà cho cẩn thận, thì chúng con xin Người bênh vực con cái Đức Chúa Giêsu đã chọn. Lạy Cha rất thương yêu, chúng con xin Người cất mọi sự dối trá cùng mọi tội lỗi cho chúng con khỏi mắc phải những sự ấy. Lạy Đấng rất mạnh đang ở trên trời, xin gìn giữ chúng con, xin Người dủ lòng thương mà che chở chúng con, đang khi chiến trận cùng kẻ thù tối tăm là các ma quỷ. Như xưa Người đã gìn giữ Đức Chúa Giêsu cho khỏi cơn hiểm nghèo thế nào, thì rày chúng con cũng xin Người cứu chữa lấy Hội Thánh cho khỏi các mưu kế giặc thù, và các sự gian nan khốn khó như vậy; cùng xin Người hằng bầu cử cho chúng con được bắt chước Người, và trông cậy vì quyền thế Người cho được giữ đạo cho trọn, cùng được chết lành, và được hưởng phúc vô cùng trên Thiên đàng. Amen.
 
-### Kinh Bởi Trời
-Lạy ơn Ðức Chúa Giêsu xưa bởi Trời mà xuống thế gian 33 năm, cùng chịu những sự thương khó cho các linh hồn được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
+### Kinh Phó Dâng 
+Lạy Chúa *(con)*, con xin phó dâng linh hồn và xác con ở tay Chúa con, Chúa đã phù hộ con ban *(ngày / đêm)*, thì xin Chúa cũng gìn giữ con ban *(đêm / ngày)*, kẻo sa phạm tội gì mất lòng Chúa, hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
 
-### Kinh Vực Sâu
-Lạy Chúa con, con ở dưới vực sâu kêu lên Chúa con, xin Chúa con hãy thương nhậm lời con kêu van, hãy lắng nghe tiếng con cầu xin. Nếu Chúa con chấp tội, nào ai rỗi được? Bởi Chúa con hằng có lòng lành, cùng vì lời Chúa con phán hứa, con đã trông cậy Chúa con. Linh hồn con cậy vì lời hứa ấy thì đã trông cậy Chúa con. Những kẻ làm dân Đức Chúa Trời, đêm ngày hãy trông cậy Người cho liên, vì Người rất nhân lành hay thương vô cùng, sẽ tha hết mọi tội lỗi kẻ làm dân Người thay thảy. <br/>
-Lạy Chúa con, xin ban cho *(các linh hồn / linh hồn … )* được nghỉ ngơi đời đời, và được sáng soi vô cùng. Lạy Chúa con, xin cứu lấy *(các linh hồn / linh hồn ...)* cho khỏi tù ngục mà được nghỉ yên. Amen.
-
-### Kinh Lạy Chúa Con
-Lạy Chúa con, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ được. Vậy con xin Chúa con lòng lành vô cùng thương đến các linh hồn nơi lửa luyện tội. Xin Chúa con nghe lời con cầu xin kêu van, cho linh hồn ông bà, cha mẹ, anh em, bạn hữu con. Xin Chúa con mở cửa thiên đàng cho các linh hồn ấy vào. Xin cho các linh hồn ấy được sự sống vô cùng hằng soi cho liên. Amen
+## Kinh Sáng Soi
+Cúi xin Chúa sáng soi cho chúng con được biết việc phải làm, cùng khi làm xin Chúa giúp đỡ cho mỗi kinh mỗi việc chúng con, từ khởi sự cho đến hoàn thành đều nhờ bởi ơn Chúa. Amen.
 
 ### Kinh Dâng Ngày
 Lạy Trái Tim Cực Thánh Ðức Chúa Giêsu, con nhờ Trái Tim Cực Sạch Đức Bà Maria mà dâng cho Trái Tim Chúa mọi lời con cầu xin, mọi việc con làm, mọi sự khó con chịu trong ngày hôm nay, cho được đền vì tội lỗi con và cầu nguyện theo ý Chúa . Khi dâng mình tế lễ trên bàn thờ, con lại dâng các sự ấy cho Trái Tim Chúa, có ý cầu nguyện cách riêng theo ý Đức Giáo Hoàng.
@@ -73,30 +70,35 @@ Trời đã xế chiều, Giêsu ơi con nhờ tay Mẹ Maria mà dâng lên Ch�
 Cùng với bóng chiều tà, Giêsu Maria, con hòa ca, dâng về nơi bao la. Chúa ban phép lành, một đêm ngủ an bình, hồn trong xác tươi xinh.
 
 
-### Kinh Phó Dâng 
-Lạy Chúa con, con xin phó dâng linh hồn và xác con ở tay Chúa con, Chúa đã phù hộ con ban *(ngày / đêm)*, thì xin Chúa cũng gìn giữ con ban *(đêm / ngày)*, kẻo sa phạm tội gì mất lòng Chúa hay là chết tươi ăn năn tội chẳng kịp. Chớ gì sống chết con được giữ một lòng kính mến Chúa luôn. Amen.
+### Kinh Bởi Trời
+Lạy ơn Ðức Chúa Giêsu xưa bởi Trời mà xuống thế gian ba mươi ba năm, cùng chịu những sự thương khó cho các linh hồn thien hạ được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng mọi sự vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
 
-### Kinh Sáng Soi
-Cúi xin Chúa sáng soi cho chúng con được biết việc phải làm, cùng khi làm xin Chúa giúp đỡ cho mỗi kinh mỗi việc chúng con, từ khởi sự cho đến hoàn thành đều nhờ bởi ơn Chúa. Amen.
+### Kinh Vực Sâu
+Lạy Chúa *(con)*, con ở dưới vực sâu kêu lên Chúa con, xin Chúa con hãy thương nhậm lời con kêu van, hãy lắng nghe tiếng con cầu xin. Nếu Chúa con chấp tội, nào ai rỗi được? Bởi Chúa con hằng có lòng lành, cùng vì lời Chúa con phán hứa, con đã trông cậy Chúa con. Linh hồn con cậy vì lời hứa ấy thì đã trông cậy Chúa con. Những kẻ làm dân Đức Chúa Trời, đêm ngày hãy trông cậy Người cho liên, vì Người rất nhân lành hay thương vô cùng, sẽ tha hết mọi tội lỗi kẻ làm dân Người thay thảy.
+Lạy Chúa con, xin ban cho *(các linh hồn / linh hồn … )* được nghỉ ngơi đời đời, và được sáng soi vô cùng. Lạy Chúa con, xin cứu lấy *(các linh hồn / linh hồn ...)* cho khỏi tù ngục mà được nghỉ yên. Amen.
+
+### Kinh Cầu Cho Các Linh Hồn
+Lạy ơn Đức Chúa Giêsu, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ được. Vậy con xin Chúa con lòng lành vô cùng thương đến các linh hồn nơi lửa luyện tội. Xin Chúa con nghe lời con cầu xin kêu van, cho linh hồn ông bà, cha mẹ, anh em, bạn hữu con. Xin Chúa con mở cửa thiên đàng cho các linh hồn ấy vào. Xin cho các linh hồn ấy được sự sống vô cùng hằng soi cho liên. Amen
+
 
 ### Kinh Cám Ơn
-Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng chẳng bỏ con, chẳng để con không đời đời, mà lại sinh ra con, cho con được làm người, cùng hằng gìn giữ con, hằng che chở con, lại cho Ngôi Hai xuống thế làm người, chuộc tội chịu chết trên cây Thánh Giá vì con, lại cho con được đạo thánh Đức Chúa Trời, cùng chịu nhiều ơn nhiều phép Hội Thánh nữa, và đã cho phần xác con *(đêm nay / ngày hôm nay)* được mọi sự lành; lại cứu lấy con kẻo phải chết tươi ăn năn tội chẳng kịp. Vậy các Thánh ở trên nước thiên đàng cám ơn Đức Chúa Trời thế nào, thì con cũng hợp cùng các Thánh mà dâng cho Chúa con cùng cám ơn như vậy. Amen.
+Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ con, chẳng để con không đời đời, mà lại sinh ra con, cho con được làm người, cùng hằng gìn giữ con, hằng che chở con; lại cho Ngôi Hai xuống thế làm người, chuộc tội chịu chết trên cây Thánh Giá vì con; lại cho con được đạo thánh Đức Chúa Trời, cùng chịu nhiều ơn nhiều phép Hội Thánh nữa, và đã cho phần xác con *(đêm nay / ngày hôm nay)* được mọi sự lành; lại cứu lấy con kẻo phải chết tươi ăn năn tội chẳng kịp. Vậy các Thánh ở trên nước thiên đàng cảm ơn Đức Chúa Trời thế nào, thì con cũng hợp cùng các Thánh mà dâng cho Chúa con cùng cảm ơn như vậy. Amen.
 
 ### Kinh Trông Cậy
-Chúng con trông cậy rất thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng hằng chửa chúng con cho khỏi mọi sự dữ, Amen.
+Chúng con trông cậy Rất Thánh Đức Mẹ Chúa Trời, xin chớ chê chớ bỏ lời con nguyện, trong cơn gian nan thiếu thốn, Đức Nữ Đồng Trinh hiển vinh sáng láng. *Hằng chữa chúng con cho khỏi mọi sự dữ.* Amen.
 
-- Lạy rất thánh trái tim Đức Chúa Giêsu <br/>
-     Thương xót chúng con.
-- Lạy trái tim cực thanh cực tịnh rất thánh Đức Bà Maria, <br/>
-      Cầu cho chúng con.
+- Lạy Rất Thánh Trái Tim Đức Chúa Giêsu, <br/>
+     *Thương xót chúng con.*
+- Lạy Trái Tim Cực Thánh Cực Tịnh Rất Thánh Đức Bà Maria, <br/>
+      *Cầu cho chúng con.*
 - Lạy ông thánh Giuse là bạn thanh sạch Đức Bà Maria trọn đời đồng trinh, <br/>
-      Cầu cho chúng con.
-- Các Thánh Tử Đạo Việt Nam, <br/>
-      Cầu cho chúng con.
+      *Cầu cho chúng con.*
+- Lạy Các Thánh Tử Đạo Việt Nam, <br/>
+      *Cầu cho chúng con.*
 - Nữ Vương ban sự bằng an, <br/>
-     Cầu cho chúng con.
+     *Cầu cho chúng con.*
 - Lạy Đức Mẹ Hằng Cứu Giúp,  <br/>
-     Cầu cho chúng con.
+     *Cầu cho chúng con.*
      
 - Giêsu Maria Giuse con mến yêu,
 xin cứu rỗi các linh hồn.
@@ -116,8 +118,8 @@ Chúa là Thiên Chúa các đạo binh. Trời đất đầy vinh quang Chúa. 
 Hoan hô Chúa trên các tầng trời. Chúc tụng Đấng ngự đến nhân danh Chúa. Hoan hô Chúa trên các tầng trời.
 
 ### Kinh Cáo Mình (mới)
-Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng. <br/>
-Vì vậy tôi xin Đức Bà Maria trọn đời đồng trinh, các thiên thần, các thánh và anh chị em, khẩn cầu cho tôi trước toà Thiên Chúa, Chúa chúng ta.
+Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em: Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng. <br/>
+Vì vậy tôi xin Đức Bà Maria trọn đời đồng trinh, các Thiên Thần, các Thánh và anh chị em, khẩn cầu cho tôi trước toà Thiên Chúa, Chúa chúng ta.
 
 ### Kinh Vinh Danh
 Vinh danh Thiên Chúa trên các tầng trời, và bình an dưới thế cho loài người thiện tâm. Chúng con ca ngợi Chúa, chúng con chúc tụng Chúa, chúng con thờ lạy Chúa, chúng con tôn vinh Chúa, chúng con cảm tạ Chúa vì vinh quang cao cả Chúa. <br/>
@@ -556,6 +558,12 @@ Please send corrections, suggestions, comments, etc... to [info@KinhLe.com](mail
 
 ---------------------------------------------------------------------------------------
 ## Nguồn (Sources):
+
+Sách Kinh Nhỏ - Tòa Giám Mục Nha Trang - Nhà Xuất Bản Tôn Giáo. 2012 
+
+Kinh Bản Công Giáo - Giáo Phận Bắc Ninh.  NS. Trái Tim Đức Mẹ Tái Bản. 1992
+
+Sách Kinh - Địa Phận Hải Phòng - Bùi Chu - Thái Bình. Mẫu Tâm Thư Quán. 1970.
 
 [https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html](https://www.tonggiaophanhanoi.org/tu-lieu/phung-vu-tl/11246-phan-thu-nhat-cac-kinh-doc-sang-toi-ngay-thuong-va-chua-nhat.html)
 
