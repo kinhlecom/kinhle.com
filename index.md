@@ -545,9 +545,8 @@ Amen.
 
 ---------------------------------------------------------------------------------------
 ## Resources:
-[Version for offline reading on mobile devices](Kinh_Prayers__www.kinhle.com.pdf)
 
-[Version for print-out](Kinh_Prayers__www.kinhle.com__print.pdf)
+[PDF Version for offline reading or  print-out](Kinh_Prayers__www.kinhle.com__print.pdf)
 
 [Catholic.Prayers.01.pdf](Catholic.Prayers.01.pdf)
 
