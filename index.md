@@ -71,7 +71,7 @@ Cùng với bóng chiều tà, Giêsu Maria, con hòa ca, dâng về nơi bao la
 
 
 ### Kinh Bởi Trời
-Lạy ơn Ðức Chúa Giêsu xưa bởi Trời mà xuống thế gian ba mươi ba năm, cùng chịu những sự thương khó cho các linh hồn thien hạ được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng mọi sự vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
+Lạy ơn Ðức Chúa Giêsu xưa bởi Trời mà xuống thế gian ba mươi ba năm, cùng chịu những sự thương khó cho các linh hồn thiên hạ được rỗi. Thì rày chúng con xin Cha rất nhân lành hay thương vô cùng, xin tha phần phạt cho các hinh hồn đã cầu nguyện hôm nay, hoặc còn giam nơi lửa luyện tội thì xin mở cửa  tù rạc ấy cho ra, mà đem đến chốn hưởng mọi sự vui thật là nước thiên đàng, vì công nghiệp Chúa con đã chịu nạn chịu chết vì chúng con. Amen.
 
 ### Kinh Vực Sâu
 Lạy Chúa *(con)*, con ở dưới vực sâu kêu lên Chúa con, xin Chúa con hãy thương nhậm lời con kêu van, hãy lắng nghe tiếng con cầu xin. Nếu Chúa con chấp tội, nào ai rỗi được? Bởi Chúa con hằng có lòng lành, cùng vì lời Chúa con phán hứa, con đã trông cậy Chúa con. Linh hồn con cậy vì lời hứa ấy thì đã trông cậy Chúa con. Những kẻ làm dân Đức Chúa Trời, đêm ngày hãy trông cậy Người cho liên, vì Người rất nhân lành hay thương vô cùng, sẽ tha hết mọi tội lỗi kẻ làm dân Người thay thảy.
@@ -79,6 +79,10 @@ Lạy Chúa con, xin ban cho *(các linh hồn / linh hồn … )* được ngh�
 
 ### Kinh Cầu Cho Các Linh Hồn
 Lạy ơn Đức Chúa Giêsu, Chúa con đã phán dạy rằng, bay hãy xin thì bay sẽ được. Vậy con xin Chúa con lòng lành vô cùng thương đến các linh hồn nơi lửa luyện tội. Xin Chúa con nghe lời con cầu xin kêu van, cho linh hồn ông bà, cha mẹ, anh em, bạn hữu con. Xin Chúa con mở cửa thiên đàng cho các linh hồn ấy vào. Xin cho các linh hồn ấy được sự sống vô cùng hằng soi cho liên. Amen
+
+### Lời Nguyện
+Chúng con cậy vì  danh Chúa nhân từ cho *(các linh hồn / linh hồn … )* được lên chốn nghỉ ngơi, hằng xem thấy mặt Đức Chúa Trời sáng láng vui vẻ vô cùng. Amen.
+
 
 
 ### Kinh Cám Ơn
